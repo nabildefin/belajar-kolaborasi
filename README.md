@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-asik banget tau
+asik
